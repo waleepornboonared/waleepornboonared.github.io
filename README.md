@@ -1,1 +1,0 @@
-# waleepornboonared.github.io
